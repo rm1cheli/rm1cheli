@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @rm1cheli
+- 👋 Hi, I’m Gadzhi
 
 ---
 
